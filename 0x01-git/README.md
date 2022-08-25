@@ -1,1 +1,1 @@
-Ifeanyi is good
+Ifeanyi is good and hardworking
